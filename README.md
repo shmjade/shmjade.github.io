@@ -1,1 +1,0 @@
-# shmjade.github.io
